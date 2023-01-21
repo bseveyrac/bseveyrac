@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bseveyrac
 - 👀 I’m interested in new technology
-- 🌱 I’m currently learning about crypto ecosystem
+- 🌱 I’m currently learning about technology and blockchain ecosystem
 - 💞️ I’m looking to collaborate on crypto projects
 - 📫 How to reach me bseveyrac.pro@gmail(dot)com
 
